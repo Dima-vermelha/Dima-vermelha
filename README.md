@@ -2,7 +2,7 @@
 - 👀 I’m interested in Animations 
 - 🌱 I’m currently learning about life
 - 💞️ I’m looking to collaborate on Animations 
-- 📫 How to reach me i dont know
+- 📫 How to reach me discord or WhatsApp 
 - 😄 Pronouns: i dont have
 - ⚡ Fun fact: i love one guy
 
